@@ -1,0 +1,1 @@
+you just need to cook the hotdog so that it isn't raw

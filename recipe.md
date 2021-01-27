@@ -1,0 +1,1 @@
+Open the hotdog bag. Get ya hot dog and boil it in water for 3 minutes till bubeling. Slap it on a bun and there you go.
